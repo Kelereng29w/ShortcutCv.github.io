@@ -1,1 +1,0 @@
-# ShortcutCv.github.io
